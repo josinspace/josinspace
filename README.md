@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @josinspace aka Joslyn Patitz
+- 👋 Hi, I’m @josinspace aka Joslyn Patitz (Senior Undergraduate Astrophysics/Space Physics Major and Mathematics Minor)
 - 👀 I’m interested in particle astrophysics
 - 🌱 I’m currently learning optical engineering, stellar astrophysics, and advanced mathematics
 - 📫 How to reach me: patitzj@my.erau.edu
